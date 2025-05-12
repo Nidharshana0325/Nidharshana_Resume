@@ -1,0 +1,1 @@
+Welcome to my resume repository! This repository contains the latest version of my professional resume, along with key details about my background, experience, and skill set. Feel free to browse, download, or reach out to connect.
